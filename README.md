@@ -1,4 +1,4 @@
-### Hi,👋 I'm Anastasiia Ivanova!
+### Hey hi!👋  I'm Anastasiia Ivanova!
 
 Here are some facts about me: 
 
