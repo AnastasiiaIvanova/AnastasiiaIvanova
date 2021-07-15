@@ -1,6 +1,4 @@
-### Hi! I'm Anastasiia 😉
-
-Here are some facts about me: 
+### Hi, I'm Anastasiia! Nice to meet you! 👋
 
 🙌 I help great companies scale their technical teams
 
