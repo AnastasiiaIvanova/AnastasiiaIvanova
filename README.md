@@ -1,10 +1,10 @@
 ### Hi, I'm Anastasiia! Nice to meet you! 👋
 
-🙌 I help great companies scale their technical teams
+🙌  I help great companies scale their technical teams
 
-🤓 I'm in love with Sourcing and Recruitment. For the last 5 years I do nothing but looking for people all over the world. 
+🤓  I'm in love with Sourcing and Recruitment. For the last 5 years I do nothing but looking for people all over the world. 
 
-👩‍💻 I'm currently working in the **Blackbird Lab** company as a Talent Acquisition Specialist. Are you from Ukraine? Check our open positions: https://bit.ly/3hEXDSg
+👩‍💻  I'm currently working in the **Blackbird Lab** company as a Talent Acquisition Specialist. Are you from Ukraine? Check our open positions: https://bit.ly/3hEXDSg
 
 ⚡ I am a **huge running lover 🏃‍♀️ and future marathoner 🏆**
 
