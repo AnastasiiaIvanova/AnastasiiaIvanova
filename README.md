@@ -8,6 +8,6 @@ Here are some facts about me:
 
 👩‍💻 I'm currently working in the **Blackbird Lab** company as a Talent Acquisition Specialist. Are you from Ukraine? Check our open positions: https://bit.ly/3hEXDSg
 
-⚡ I am a huge **running lover 🏃‍♀️ and future marathoner 🏆**
+⚡ I am a **huge running lover 🏃‍♀️ and future marathoner 🏆**
 
 📫 How to reach me:  telegram: @aivanovaai email: ivanova.recruiter@gmail.com
