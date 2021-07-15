@@ -1,16 +1,13 @@
-### Hi there 👋
+### Hi,👋 I'm Anastasiia Ivanova!
 
-<!--
-**AnastasiiaIvanova/AnastasiiaIvanova** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Here are some facts about me: 
 
-Here are some ideas to get you started:
+I help great companies scale their technical teams
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🤓 I'm in love with Sourcing and Recruitment. For the last 5 years I do nothing but looking for people all over the world. 
+
+I'm currently working in the **Blackbird Lab** company as a Talent Acquisition Specialist. 
+
+⚡ I am a huge running lover 🏃‍♀️ and future marathoner 🏆
+
+📫 How to reach me:  telegram: @aivanovaai email: ivanova.recruiter@gmail.com
