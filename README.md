@@ -6,7 +6,7 @@
 
 🤓  I'm in love with Sourcing and Recruitment. For the last 5 years I connected hundreds of people all over the world.
 
-👩‍💻  I'm currently working in the **Relive** company as a Talent Acquisition Specialist.  
+👩‍💻  I'm currently working in the **Relive** company as a Recruiter. We help track and share your outdoor activities like nothing else.
 
 👀  Open to discuss vacancies? Check our open positions: https://jobs.relive.cc/
 
