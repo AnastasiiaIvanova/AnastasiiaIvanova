@@ -8,7 +8,7 @@
 
 👩‍💻  I'm currently working in the **Relive** company as a Recruiter. We help track and share your outdoor activities like nothing else.
 
-👀  Open to discuss vacancies? Check our open positions: https://jobs.relive.cc/
+👀  Open to discuss vacancies? Check our open positions: https://jobs.relive.cc/ We are remote-first company and looking for people all around Europe!
 
 ⚡  I love running 🏃‍♀️ and train to run my FIRST marathon later this year 🏆
 
