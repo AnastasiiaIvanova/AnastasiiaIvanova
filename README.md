@@ -10,7 +10,7 @@
 
 👀  Open to discuss vacancies? Check our open positions: https://jobs.relive.cc/ We are remote-first company and looking for people all around Europe!
 
-⚡  I love running 🏃‍♀️ and train to run my FIRST marathon later this year 🏆
+⚡  I love running 🏃‍♀️ and train to run my FIRST marathon (someday:))🏆
 
 🧩 Social media: [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='20'>](https://www.linkedin.com/in/anastasiia-ivanova/) 
 
