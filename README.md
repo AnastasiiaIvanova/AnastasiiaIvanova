@@ -15,5 +15,3 @@
 🧩 Social media: [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='20'>](https://www.linkedin.com/in/anastasiia-ivanova/) 
 
 📫 How to reach me: [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/whatsapp.svg' alt='whatsapp' height='20'>](https://wa.me/qr/FVRPOZVPIVWOC1) [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/telegram.svg' alt='telegram' height='20'>](https://t.me/aivanovaai) [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/gmail.svg' alt='gmail' height='20'>](mailto:ivanova.recruiter@gmail.com)
-
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=AnastasiiaIvanova" alt="AnastasiiaIvanova" /> </p>
